@@ -1,1 +1,1 @@
-Every one has his/her own idea and flavor about the design of things, about how the things must appeat in their life. So, I love to create my Music Player like this. If you also like this types of styling for your music player feel free to share your idea about and do star.
+Every one has his/her own idea and flavor about the design of things, about how the things must appear in their life. So, I love to create my Music Player like this. If you also like this types of styling for your music player feel free to share your idea about and do star.
